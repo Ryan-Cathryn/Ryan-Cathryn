@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ryan-Cathryn (she/her)
-- 👀 I’m interested in the human side of tech💕 Dog Lover, Swiftie, Plant based, LGBTQIA+
+- 👀 I’m interested in the human side of tech💕 Dog Lover, Swiftie, Plant Based, LGBTQIA+
 - 🌱 I’m currently learning SQL, R & Python
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on anything & everything 😁
 - 📫 How to reach me ryancathryn123@gmail.com
 
 <!---
